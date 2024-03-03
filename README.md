@@ -18,4 +18,3 @@ I take pride in my commitment to continuous learning. I hold certifications from
 
 Feel free to explore my repositories and projects. If you have any questions or collaboration ideas, don't hesitate to reach out! Let's build something amazing together. 🚀
 
-Connect with me on [LinkedIn](#) | Follow me on [Twitter](#) | Check out my [Portfolio](#)
